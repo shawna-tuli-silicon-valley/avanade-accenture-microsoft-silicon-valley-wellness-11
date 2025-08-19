@@ -1,1 +1,1 @@
-<img width="746" height="317" alt="Flower Bouqet Making" src="https://github.com/user-attachments/assets/57365b15-22e1-40ea-9ca8-eff6aa803637" />
+<img width="1516" height="641" alt="Screenshot 2025-08-19 163146" src="https://github.com/user-attachments/assets/5c6ca149-40d3-4042-9937-a783e47d1268" />
